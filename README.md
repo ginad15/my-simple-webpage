@@ -10,3 +10,4 @@
 + I like fashion and sports
 
 **I really like NYC**
+**Giana is my roommate**
